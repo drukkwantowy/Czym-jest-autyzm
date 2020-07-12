@@ -7,3 +7,4 @@ dobrymi inżynierami czy artystami są nadwymiar kreatywni co normalnym ludziom 
 Autystyczna Moli lubi czarować i żucać czary jej zainteresowania to magia, fizyka kwantowa i pedantyzm aby
 spełnić cel stanie na głowie aby to realizować zrobi wszystko aby to było nawet policzy matematycznie i to jej wyjdzie.
 Człowiek nie maszyna błędy popełnia i człowiek normalny sztuką się nie ineteresuje ludzi z autyzmem itp.
+Autyzm można podzielić na 2 rodzaje: tęczowa bajkowa perfekcja i mroczna bajkowa perfekcja. Wszystko jest idealne. 
