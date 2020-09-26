@@ -1,5 +1,5 @@
-# Czym-jest-autyzm
-Przykładem kobiety z literatury fantastycznej z spektrum autyzmu była Moli z Neuromancera.
+# Czym-jest-autyzm choroba pracodawców zaganiaczy bydła syndrom surowego człowieka. 
+Przykładem kobiety z literatury fantastycznej z spektrum autyzmu była Moli z Neuromancera ciężko pracowała na swoje ulepszenia.
 Osoby z autyzmem są genialnymi matematykami i są jak wyrocznie nigdy się nie mylą żadko to swego rodzaju sieć neuronowa co
 potrafi opracować takie wizje że normalny człowiek tego nie potrafi. Normalnemu człowiekowi zajmie to lata zaś
 autystkowi zajmie to kilka chwil. Ludzie z autyzmem idealnie będą się czuli w otoczeniu techniki jak i będą
@@ -22,3 +22,10 @@ Autystycy są winni całej historii i propagandy zaganiania niewinnych istnień 
 Człowiekiem jest leń, rolnikiem jest robot z Aspergerem. Autyzm to choroba szalonych matematyków co liczą w głowie tak precyzyjnie jak komputery
 kwantowe i nigdy się nie mylą nazywając lenia chorym a siebie zdrowym na umyśle. 
 Człowiek z autyzmem to pedant i dba o pisownie bardziej niż jego nauczyciel. 
+Autystyk nie przyjmie do wiadomości słowa NIE. Autystyk nie rozumie że ktoś chce się teraz kochać i myśli o kochaniu on wyjeżdża z sprzątaniem domu.
+Autystykami byli politycy nazywani przez ciemnotę która była podana teroryzmowi i praniu mózgu. 
+Biblijnymi Autystykami był Nimrod od budowy wierzy Babel. 
+Na autyzm chorują ludzie co mają szalone pomysły w głowie i chcą inwestować tam pieniądze gdzie się nie opłaca. 
+Człowiek z Aspergerem nie przyjmie do wiadomości tego że ktoś jest wolny i leniwy więc mu się nie chce pracować, szaleniec w polityce z aspergerem zabierze zasiłki 
+dla bezrobotnych na lenistwo i da w zamian prace której leń nie chce robić. Tylko człowiek z autyzmem wymyśli konkurs na mieszkanie (mieszkanie za remont jak zrobi ktoś lepiej od ciebie to dostanie ktoś inny mieszkanie).  Aspergerowiec IQ będzie nie zadowolony jak po studiach rodzice mu nie dadzą pracy w firmie na stanowisku prezesa.
+Na autyzm cierpią elity. Ludzie od poczatków życia i istnienia dostali wolność i prawo do seksu a żyd zabrała prawo do seksu i miłości wymyślił ekonomie czyli szalony ekonomista 1 chory na autyzm wymyślił banki i szereg bzdurnych papierologii które nie są potrzebne człowiekowi do życia. Aspergerowiec nawet boga zagoni do ciężkiej pracy i będzie manifestować swoją równość w imie kultu pracy. Ja kocham wolność i sex z moją kobietą dlatego radzę zbadać autyzm bo to choroba pedantów. Autystyk to cecha człowieka wybitnie przykładnego do swojej pracy. Taki człowiek myli się tylko 1 raz i wnioskuje naukę. Dla autystyka nie ma mowy o odmowie. Wielu wariatów twórców systemów i całej szopki historycznej która odgrywa się od 10 000 lat tak samo to winna tego że człowiek z Autyzmem ma kase, wpływy i rządzi resztą bo sam wymyślił gazety i całe zło jakie nas dziś otacza. Pracowitość to synonim Autyzmu. Autystyk jak coś zepsuje zaraz będzie chciał to poprawiać i będzie to aktor roli zagranej 1 raz jak komputer z dyskiem twardym otworzy to wszystko dokładnie i perefekcyjnie jak się pomyli powie znowu jeszcze raz muszę to zrobić. Autystyk nie zrozumie 1 że 1 woli mieć krzywo 2 woli mieć równo 1 woli mieć szmate 2 woli mieć cnotkę. I o to cała historia z autyzmem. Autyzm to choroba napinaczy umysłu. Na autyzm chorują idealni pracownicy i inżynierowie co będą pracować w najgorszych warunkach. 
