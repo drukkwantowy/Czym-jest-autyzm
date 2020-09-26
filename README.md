@@ -21,3 +21,4 @@ I to cała historia o Autyzmie. Na autyzm cierpią maszyny które nie mogą poj�
 Autystycy są winni całej historii i propagandy zaganiania niewinnych istnień do cierpienia w imie religi. Wolny człowiek ma prawo do lenistwa. 
 Człowiekiem jest leń, rolnikiem jest robot z Aspergerem. Autyzm to choroba szalonych matematyków co liczą w głowie tak precyzyjnie jak komputery
 kwantowe i nigdy się nie mylą nazywając lenia chorym a siebie zdrowym na umyśle. 
+Człowiek z autyzmem to pedant i dba o pisownie bardziej niż jego nauczyciel. 
