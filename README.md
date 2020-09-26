@@ -18,3 +18,6 @@ zdenerwowane jak nie idzie coś po jego myśli i nie ma ofiar swojej manipulacji
 inteligentnych cierpi na Autyzm. Człowiek z Autyzmem to idealny człowiek na dykatora i masowego morderce i zboczeńca. 
 1 Ludzie wygnani byli z Edenu z winy żydów cierpiących na autyzm i ADHD bo wszędzie widzieli zło 1 ludzi co chcieli się leniwić.
 I to cała historia o Autyzmie. Na autyzm cierpią maszyny które nie mogą pojąć że ludzie są wolni i nie muszą cięszko pracować aby żyć. 
+Autystycy są winni całej historii i propagandy zaganiania niewinnych istnień do cierpienia w imie religi. Wolny człowiek ma prawo do lenistwa. 
+Człowiekiem jest leń, rolnikiem jest robot z Aspergerem. Autyzm to choroba szalonych matematyków co liczą w głowie tak precyzyjnie jak komputery
+kwantowe i nigdy się nie mylą nazywając lenia chorym a siebie zdrowym na umyśle. 
