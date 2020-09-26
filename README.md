@@ -33,3 +33,4 @@ Cierpioncy na autyzm jak zrobi komputer będzie tak idealny że nie będzie moż
 Autystyk jak coś zbuduje to nie będzie można się przyczepić tylko w niego inwestować zawsze powstanie dzieło sztuki. 
 Prznaczeniem ludzi jest tworzenie programów na komputer lub telefon i za pomocą tych programów z AI projektować to co dla człowieka nie możliwe jak np.: replikacja 
 przedmitów druk kwantowy czy czego kolwiek bez pracy głupiego z ominięciem Autystyka i jego chorych pomysłów cyklicznej cykliczności jego możliwości. Na autyzm choruje religia bo lubi cierpienie i bez sensowną cykliczną prace bez ułatwień. Gdyby nie ludzie z ADHD i autyzmem świat by był prostrzy bez banków i papierologi.  
+Polscy politycy z Autyzmem wynalazcy niewolnictwa i czynu w imie pracy i propagandy z poprawną pisownią dla nich jak dla Rosjan Autyzm jest poprawny politycznie bo Autyzm to cecha dobrego i surowego pracownika jak tego z plakatów propagandy watykanu. 
