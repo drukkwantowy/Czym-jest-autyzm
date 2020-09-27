@@ -50,3 +50,4 @@ Na aspergera cierpiało Zomo i Breivik. Asperger to szereg zabużeń psychicznyc
 Na czołowe stanowiska po znajomości wpuszcza się ludzi cierpiących na Autyzm. 
 Cała historia wojen, rozlewu krwi, ekonomi i niewolnictwa to nie wykryty za wczasu autyzm. 
 10 000 lat temu 1 człowiek który się urodził w dzieciństwie bawił się w dwór i podanych to była oznaka Autyzmu. Autyzmem można też nazwać zbieractwo i polowania. 1 władcy cierpieli na autyzm a potem genetycznie lub edukacyjnie cierpieni na autyzm. Autyzmu można się nauczyć. 
+10% populacji ludzi cierpi na Aspergera gdzie 90% populacji to niewolnicy tych 10% Aspergera. Aspergerowcy żyją na socjalu u władzy na podatkach ludzi a ludzie na Apergera pracują w kurnikach. Asperger mieszka w wilach a 90% populacji mieszka w kurnikach szuflandi. 1 cwani aspergerowcy wymyślili historie i zabawe w miasto państwo jak i zbieractwo z polowaniem. 
