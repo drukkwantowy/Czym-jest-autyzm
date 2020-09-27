@@ -45,3 +45,4 @@ Przykładem Aspergera jest przykład z filmu 19+ kobieta nie może się pogodzi�
 Ludzie z Aspergerem Autyzmem są straktowani przez religie jako kryształowe dzieci z wiedzą czyli dzieci indygo. 
 Autyzm można porównać do szalonego Riddika genialnego mordercy. Gdyby nie wczesne wykrycie autyzmu wojen i histori przez ostatnie 10000 lat by nie było. 
 Autyzm ma tyle barw ile ma tęcza i kolory czerni. Autystycy mają dziwną sztukę coś jak z Neuromancer. 
+Przez autyzm mamy niskie płace bo politycy z aspergerem stale się bawią ludzmi, Asperger wymyślił plan że da czasowo dużo pieniędzy ludziom a potem je zabierze i da sobie swoim kolegom. Przez aspergera gazety mają co pisać i wymyślać bo auta są celowo niszczone aby były wypadki na drogach. Najpier wojny teraz wypadki drogowe bo gazeta musi pisać. Co by robiła gazeta gdyby nie było aspergera pisała by o pogodzie i nowych projektach rządu i chwaliła lenistwo. 
