@@ -57,3 +57,4 @@ Wysyłanie lenia do pracy a Autystyk na ręte idzie i cieszy się z tego że zro
 Autystyk lubi robić ustawki kwantowe jak zabawa w PRL Zomo.
 Autystyk kocha być złośliwy dla innych. 
 Autystykami są Bad Boy. 
+Jedyną terapią na autyzm jest coś na wzór omnitrixa urządzenia do naprawy DNA na poziomie kwantowym i informacyjnym czyli telefon lub komputer z AI zdolny radiowo naprawić chorego na tę chorobę. Komputer musi na nowo poskładać kod DNA aby naprawić kod DNA chorego a jego głupie objawy mineły. 
