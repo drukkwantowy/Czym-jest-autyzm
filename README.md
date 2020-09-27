@@ -44,3 +44,4 @@ Wymysłem serialowym aspergera jest świat wg kiepskich. Asperger nie może poj�
 Przykładem Aspergera jest przykład z filmu 19+ kobieta nie może się pogodzić z tym że jej ex jej nie chce a ona chce jego i o niego walczy.  Na aspergera też chorują ludzie co wierzą w boga bo nie chce im się wymyślić spełniacza życzeń więc się modlom do boga że będzie cód. 
 Ludzie z Aspergerem Autyzmem są straktowani przez religie jako kryształowe dzieci z wiedzą czyli dzieci indygo. 
 Autyzm można porównać do szalonego Riddika genialnego mordercy. Gdyby nie wczesne wykrycie autyzmu wojen i histori przez ostatnie 10000 lat by nie było. 
+Autyzm ma tyle barw ile ma tęcza i kolory czerni. Autystycy mają dziwną sztukę coś jak z Neuromancer. 
