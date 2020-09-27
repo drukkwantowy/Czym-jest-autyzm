@@ -51,3 +51,9 @@ Na czołowe stanowiska po znajomości wpuszcza się ludzi cierpiących na Autyzm
 Cała historia wojen, rozlewu krwi, ekonomi i niewolnictwa to nie wykryty za wczasu autyzm. 
 10 000 lat temu 1 człowiek który się urodził w dzieciństwie bawił się w dwór i podanych to była oznaka Autyzmu. Autyzmem można też nazwać zbieractwo i polowania. 1 władcy cierpieli na autyzm a potem genetycznie lub edukacyjnie cierpieni na autyzm. Autyzmu można się nauczyć. 
 10% populacji ludzi cierpi na Aspergera gdzie 90% populacji to niewolnicy tych 10% Aspergera. Aspergerowcy żyją na socjalu u władzy na podatkach ludzi a ludzie na Apergera pracują w kurnikach. Asperger mieszka w wilach a 90% populacji mieszka w kurnikach szuflandi. 1 cwani aspergerowcy wymyślili historie i zabawe w miasto państwo jak i zbieractwo z polowaniem. 
+Zachowanie autystyka na przykładzie redaktora i elektryka z Autyzmem.: celowe wyłączanie elektryczności aby w prasie było co pisać.
+Psucie aut aby był wypadek i przypadek do prasy.
+Wysyłanie lenia do pracy a Autystyk na ręte idzie i cieszy się z tego że zrobił coś złośliwego jak szalony w domu. 
+Autystyk lubi robić ustawki kwantowe jak zabawa w PRL Zomo.
+Autystyk kocha być złośliwy dla innych. 
+Autystykami są Bad Boy. 
