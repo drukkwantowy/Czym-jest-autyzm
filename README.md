@@ -95,3 +95,4 @@ Co autyzmem nie jest a jest miłością u kobiet? Jeśli kobieta ubiera się na 
 Autystykom standardowa miłość nie wystarczy jak sex, przytulanie i całowanie. Autystycy lubują się w perwersji pornograficznej i agresji rodem od zawodowego arkocholika. Atyzm to gentyczna wada DNA i schizofremia która powoduje że chory nie jest świadomy tego że źle robi ale wie że dobrze robi. 
 Osoba z Autyzmem chwali się że coś zrobiła rewolucyjnego a okazuje się że to co zrobiła jest warte 0 dolarów a chce za to fortuny. 
 Jak wygląda autystyk programista? Panie psorze napisałem program do leczenia chorób a ten program tak naprawia wolno DNA że jeszcze dodatkowo niszczy kod DNA i leczy 1 chorobę a robi inną chorobę i autystyk się pyta panie psorze dostanę 6 za swój geniusz? 
+Autystyk jak zrobi produkt do sprzedaży będzie to bubel nie dorobiony w szczegułach zrobiony za pare centów a będzie wołać za to majątek tyle co za mieszkanie. 
