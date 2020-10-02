@@ -108,3 +108,4 @@ Dzieci z autyzmem kochają zbieractwo i polowanie nigdy nie będą cenić replik
 Kaczyni cynicy nauczyli ludzi jeść mięso i siebie nauczyli ich zbieractwa, chamstwa, wojen, niewolnictwa i nynoshk, prostactwa, polowania i kanibalizmu miłości do polowania ze zdobywaniem trofeów. Czyli bogowie urojeni z gwiazd. 
 Tam gdzie zamiłowanie do polowania i zdobywania trofełów i mięsa tam jest epidemia autyzmu i zaburzeń osobowości Homo nardeltalis czyli wikingowie i wyprawy wojenne. 
 Ja przez swoich przodków ma w rodzinie DNA norwegów którzy kochali jeść mięso przez nich choruje na miłość do mięsa i podziwiania wyrobów ze skury naturalnej. Miłość do polowania i mięsa to choroba związana z autyzmem i zaburzeniami osobowości. Brzydze się swojego DNA drapieżnika. 
+Może ktoś z programistów złamie kod DNA i opracuje AI zdolne naprawić wady psychiki i miłość do mięsa jak i skóry naturalnej. Przez tą chorobę drapieżnika będzie NWO. 
