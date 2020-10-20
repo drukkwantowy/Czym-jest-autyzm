@@ -123,8 +123,7 @@ Kościuł katolicki jest 2 licowy działa na zlecenie diabła i anioła.
 Ludzie wierzą że to co ich spotyka to siły nadprzyrodzone. To prace na AI i elektroniką do manipulowania fizyką świata. Gazety służą bogatym osobom od tajnych projektów. Asperger podnieca się obrazem ze szybkością 1000 MB/s. Asperger wymyślił ekonomie i historie tragiczną zwaną sztuką tragiczną potocznie teatrem.
 Światem rządzi czerwona komuna lewicowa która każe za to że jak zawołasz większą pensję to cie doda na czarną listę. Komuniści zakazali wiary w nieśmiertelne DNA a każą wierzyć w niebo i drogę cierpienia i misjonarstwa dobrze to widać jak mieszka się z rodzicami, rodzice zamiast dbać o dom to zaganiają dzieci do pracy a jak się ktoś stawi to agresja że źle. Komuchy zawsze wymagały precyzji i darmo w imię głupich idei. Komuniści to czerwona lewica.  Od swoich pracowników wymagają cudu i ciężko ich traktują mają się za ideał bo potrafią 3 rzeczy jednocześnie na pamięć.
 Złośliwie zaniżają wynagrodzenia słabszych pracowników. Traktują słabszych jak towar który można zamieniać co sekundę.
-
- 
+Na autyzm chorował Jezus i jego wyznawcy co wprowadzili teror polegający na tym że osoby z para zdolnościami doszły do władzy. 
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
