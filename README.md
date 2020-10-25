@@ -124,6 +124,16 @@ Ludzie wierzą że to co ich spotyka to siły nadprzyrodzone. To prace na AI i e
 Światem rządzi czerwona komuna lewicowa która każe za to że jak zawołasz większą pensję to cie doda na czarną listę. Komuniści zakazali wiary w nieśmiertelne DNA a każą wierzyć w niebo i drogę cierpienia i misjonarstwa dobrze to widać jak mieszka się z rodzicami, rodzice zamiast dbać o dom to zaganiają dzieci do pracy a jak się ktoś stawi to agresja że źle. Komuchy zawsze wymagały precyzji i darmo w imię głupich idei. Komuniści to czerwona lewica.  Od swoich pracowników wymagają cudu i ciężko ich traktują mają się za ideał bo potrafią 3 rzeczy jednocześnie na pamięć.
 Złośliwie zaniżają wynagrodzenia słabszych pracowników. Traktują słabszych jak towar który można zamieniać co sekundę.
 Na autyzm chorował Jezus i jego wyznawcy co wprowadzili teror polegający na tym że osoby z para zdolnościami doszły do władzy. 
+Tak zwani bogowie zesłali choroby jako mafia na tych co nie chodzą do kościoła, myślą samodzielnie, nie żenią się i nie chcą pracować za 1000 zł lub jako przymus dla tradycji przymusu.
+Pandemia jest karą za wolność jak inne złe problemy. To kara za odizolowanie się od wspólnoty.
+Większość chorób jest sztucznie robiona jak tak zwane naturalne zjawiska naturalne, wojny i kryzysy bo nikt nie chce żyć w tradycji czyli wojna o nic kara za wolność. Wolności nie ma i nie było do puki u władzy siedzą ludzie od religii którzy sterują światem. Niech ktoś mi powie czy zabić człowieka wolno bo nie chce mieć dzieci i się żenić jak i pracować? Gdzie tak pisze w pismach które sobie ludzie sami napisali. Papier wchłonie wszystko jak internet a moje zamiary były inne. Ci ludzie od religii cierpienie nazywają miłością a prawda jest taka że to tak jak powiedzieć że przyjemnie jest żyć bez jakieś części ciała. Cała zadyma od 10000 lat to robota tak zwanych bogów co kiedyś byli ludzi a stali się bogami bo mają technologie która daje im paranormalne moce co tłumaczy UFO. Polaków palono za to że Polacy nie chcieli pracować, żenić się i mieć dzieci o to była wojna i za to że chcieli brać kasę i bujać się na kiju jak na jamajce. 
+Zabić człowieka za to że chce opierać się o kij i żyć jak na Jamajce.
+Kto ma dostęp do krypto VED ten ma wiedzę do prowadzenia wojen i mówi o sobie dziecko boga.
+Wojny były zawsze tam gdzie był spokój i Jamajka.
+A depopulacja to wymysł wynalazców religii różnych znaków co nie rozumieją co to znaczy słowo wolność i niezależność od kogoś.  A chorzy na głowę są rolnicy i ich religia. Rolnicy nie dopuszczą do tego aby były drukarki do druku organów czy ich regeneracja nie dopuszczą do tego aby była wolność. Światem rządzą mali ludzie co pochodzą od wariatów i noszą znaki szkół jako elity. 
+Tak więc precz z komuną 10000 lat niewoli. Przychodzi niby nowe ale znów jest stare jako nowe.
+Mordują ludzi za to że nie pracują i nie odprawiają czarnej magi ślubu. Dlatego jest Covid 19 jako kara za nie przyjęcie tradycji która nikogo nie dotyczy tak było od 10000 lat ze wszystkimi historiami. W Niemczech jest takie chamstwo że jak zapytasz o socjal załatwią ci prace i żonę a jak nie to przerobią na jedzenie. Czyli czemu są wojny. Wojny o sztukę wartą 0 gr.
+
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
