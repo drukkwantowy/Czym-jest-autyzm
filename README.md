@@ -133,7 +133,7 @@ Wojny były zawsze tam gdzie był spokój i Jamajka.
 A depopulacja to wymysł wynalazców religii różnych znaków co nie rozumieją co to znaczy słowo wolność i niezależność od kogoś.  A chorzy na głowę są rolnicy i ich religia. Rolnicy nie dopuszczą do tego aby były drukarki do druku organów czy ich regeneracja nie dopuszczą do tego aby była wolność. Światem rządzą mali ludzie co pochodzą od wariatów i noszą znaki szkół jako elity. 
 Tak więc precz z komuną 10000 lat niewoli. Przychodzi niby nowe ale znów jest stare jako nowe.
 Mordują ludzi za to że nie pracują i nie odprawiają czarnej magi ślubu. Dlatego jest Covid 19 jako kara za nie przyjęcie tradycji która nikogo nie dotyczy tak było od 10000 lat ze wszystkimi historiami. W Niemczech jest takie chamstwo że jak zapytasz o socjal załatwią ci prace i żonę a jak nie to przerobią na jedzenie. Czyli czemu są wojny. Wojny o sztukę wartą 0 gr.
-
+O co walczy wasza Emma o prawo że kobieta może wybrać faceta a mężczyzna nie uniknie przeznaczenia nie zaoszczędzi a ciąża to nie choroba. A szczepionka na Covid to szczepienie na porost kuśki bo kot wiadomo czym się kieruje nie mózgiem a impulsem spontanem. Czyli tęcza i ich problemy.
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
