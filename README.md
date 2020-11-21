@@ -140,6 +140,8 @@ Nie oglądam, nie czytam, nie słucham, nie siedzę w internecie i nie słucham 
 A wy przestańcie grać w gry zgaduj i traf dobrze dostaniesz 100 a potem odbierzemy ci 100 zł. 
 A teraz wywnioskujcie jakie mam IQ. 
 To ja teraz powiem coś o całym świecie i ludziach fikcyjnych? Zasada na ziemi jest prosta ruchaj 2  aby 2 był wyruchany wyruchaj boga i w niego wierz bo jak czegoś nie ma to wina boga bo bóg nie dał jak trwoga to wina boga. Kobiety ruchają na ciąże, mężczyźni na sex. I tylko kabaret i wyruchaj boga lub kolegę. A narodowcy opluli empik bo empik mi powiedział w 1 książce jacy są wszyscy. 
+Gdyby wam zależało na kontakcie a nie na korzyściach to dawno bym miał dziewczynę z dużej pułki ale wiadomo korzyści ważniejsze od znajomości więc ludzie kumplują się dla korzyści a nie dla przyjaźni. To nie jedna na feacbook by do mnie pisała bez żartów. Jak z lotkiem AI robi w chuja i zabiera kasę tak samo AI w ekonomi szuka geniusza by go też zrobić w chuja. Lub szuka geniusza aby dostał nobla za wynalazek i zrobić w chuja dać mu grosze a na wynalazku zarobić majątek.
+Wszyscy ludzie i inne istoty są takie same. Pozdrawiam marchewkę która też robi w chuja zwana Gwen.
 A wirusy i wojny to winna filmowców. Na mnie żadne zmiękczanie nie działa.  Tym projektem i blogiem chce dokopać wszystkim których spotkałem i musiałem robić za 0 zł. 
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu):
 https://github.com/drukkwantowy/AI-generator-Rife
