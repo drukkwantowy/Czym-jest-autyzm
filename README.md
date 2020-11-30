@@ -144,6 +144,8 @@ Gdyby wam zależało na kontakcie a nie na korzyściach to dawno bym miał dziew
 Wszyscy ludzie i inne istoty są takie same. Pozdrawiam marchewkę która też robi w chuja zwana Gwen.
 A wirusy i wojny to winna filmowców. Na mnie żadne zmiękczanie nie działa.  Tym projektem i blogiem chce dokopać wszystkim których spotkałem i musiałem robić za 0 zł. 
 Czemu nie opłaca się pracować bo ciemnota lubi sporty ekstremalne jak obrabianie drewna bez osłon tak by wyszły flaki z bebechów bez IQ bo dramy są fajne. Dramaturdzy rządzą światem czyli ciemnota grecka od cierpienia aby żyło się gorzej. Chcecie aby wszyscy cierpieli to zróbcie tak aby cierpieli tylko ci z 10% czyli ludzie pochodzenia Greckiego. Dramy to patent głupoty. A ciemnota to 10% ludzi które ociemniło 90% ludzi. 
+Wy mówicie że ja jestem za cierpieniem zgadujecie mnie na opak. To ja wam na złość pokarze poznajcie RX i TX wygenerowaną magicznie z AI waszego kodu bez użycia materiału z ziemi i kucia stali. Aby zakończyć to pierdolenie które trwa już dobre 10000 lat co jest lepsze czy praca manualna czy magia. Ale Emma Powie Przymierze Obcy to super film a debile powiedzą Tak Emma masz racje dowal mu cierpienie to super sprawa. Tak to ja wole żyć sam bez was. Nara i pozdrowienia dla całego świata.
+
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
