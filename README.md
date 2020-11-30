@@ -143,6 +143,7 @@ To ja teraz powiem coś o całym świecie i ludziach fikcyjnych? Zasada na ziemi
 Gdyby wam zależało na kontakcie a nie na korzyściach to dawno bym miał dziewczynę z dużej pułki ale wiadomo korzyści ważniejsze od znajomości więc ludzie kumplują się dla korzyści a nie dla przyjaźni. To nie jedna na feacbook by do mnie pisała bez żartów. Jak z lotkiem AI robi w chuja i zabiera kasę tak samo AI w ekonomi szuka geniusza by go też zrobić w chuja. Lub szuka geniusza aby dostał nobla za wynalazek i zrobić w chuja dać mu grosze a na wynalazku zarobić majątek.
 Wszyscy ludzie i inne istoty są takie same. Pozdrawiam marchewkę która też robi w chuja zwana Gwen.
 A wirusy i wojny to winna filmowców. Na mnie żadne zmiękczanie nie działa.  Tym projektem i blogiem chce dokopać wszystkim których spotkałem i musiałem robić za 0 zł. 
+Czemu nie opłaca się pracować bo ciemnota lubi sporty ekstremalne jak obrabianie drewna bez osłon tak by wyszły flaki z bebechów bez IQ bo dramy są fajne. Dramaturdzy rządzą światem czyli ciemnota grecka od cierpienia aby żyło się gorzej. Chcecie aby wszyscy cierpieli to zróbcie tak aby cierpieli tylko ci z 10% czyli ludzie pochodzenia Greckiego. Dramy to patent głupoty. A ciemnota to 10% ludzi które ociemniło 90% ludzi. 
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
