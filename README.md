@@ -152,7 +152,7 @@ Baran kocha ksenomorfa i lubi z nim się kochać. W tym świecie teatr to dramat
 Baran w chuja robi i wymyśla dzwignię w inwestycjach aby na tym zyskać i okraść kogoś z jego zysków Baran miliardy zarobi prostemu da grosze i prosty musi więcej myśleć aby więcej mieć. Baran prawo pisze tak aby było cierpienie bo on mówi że religia to prawdziwe cierpienie do pozbycia się grzechu bo paranie się czarną magią to życie prawdziwe które on sam komplikuje innym i sobie. Baran jest nośnikiem zła i chorób psychicznych.  
 Jak po winy nazywać się stany i kraj barana zmieniającego kolor włosów i fryzury Chujostan lub Baranostan. Od stanu umysłu. Teatrostan. CH.S.A, B.S.A, T.S.A czyli USA.
 Kiedyś nie trzeba było zgadywać myśli robota czy chłopa który ustala wykres a wpłacało się pieniądze na fundusz 1000 zł i procentowało lub co miesiąc po 1000 zł bez piramid i strat zysk był stały i niezależny od humoru aktora spekulanta. 
-Największe darmozjady dramatu mieszkają w NYC i Los Angeles. Przez was nie mogę zarabiać na procentach bo wszystko zabraliście dla siebie.
+Największe darmozjady dramatu mieszkają w NYC i Los Angeles. Przez was nie mogę zarabiać na procentach bo wszystko zabraliście dla siebie. Też bym chciał gadać bzdury w TV i leżeć u Nozardana jaki to ja jestem biedny bez kasy a na koncie mam tyle że mogę kupić Polskę. Mówią na mnie Buc z USA.
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
