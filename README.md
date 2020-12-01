@@ -155,6 +155,9 @@ Kiedyś nie trzeba było zgadywać myśli robota czy chłopa który ustala wykre
 Największe darmozjady dramatu mieszkają w NYC i Los Angeles. Przez was nie mogę zarabiać na procentach bo wszystko zabraliście dla siebie. Też bym chciał gadać bzdury w TV i leżeć u Nozardana jaki to ja jestem biedny bez kasy a na koncie mam tyle że mogę kupić Polskę. Mówią na mnie Buc z USA.
 Też bym chciał mieć 3 mieszkania na świecie dla siebie bez pożyczania. A nie mieszkać z rodzicami. Żyć bez kredytu. I omijać prawa religii mówiące o cierpieniu jak to uszlachetnia. Nie pracować w koloniach.
 Nikt darmo nie będzie robić za 4 zł h czy 20 funtów na h czy 5 dolarów na h. Aktorzy napychają sobie kiece kasą która należy się tym co pracują a nie arystokracji.
+Co z tego że ktoś napisze jakiś kod lub coś poradzi jeśli jest to przydatne jak te osoby mają cię gdzieś i nigdy cię nie odwiedzą jesteś rozpoznawalny w google a dla osobistej sprawy mojej osoby nic to nie wnosi do życia bo ja nic z tego nie mam z pomysłu danego za darmo. Potem ten pomysł ktoś przemyśli poprawi i korporacje zbuduje a mi zostaje nic. Ilu frajerów jest w Policji i wojsku za 1000 zł lub w pracy i działa jak maszyny słucha a ilu debili siedzi w NYC w banku światowym.
+Ja dam wam pomysł na pewne rozwiązanie a wy sami mi to sprzedacie za 7000 zł i to się nazywa biznes zarabiać na pomysłach innych i mówić masz doświadczenie bo dałeś się wydymać za 4 zł na h. A potem programista może iść robić w barze dla grubasów i buców jak Bafet co całe dnie jest w Bufecie i liczy zyski z piramidy zysków ilu to frajerów naciągnął na swoje obietnice.
+Podsumowując sztukę całego świata tymi słowami. Mówią załuż firme a kapusie siedzą w urzędach i koło małej firmy zakładają firmy sieciowe Bafet buc spułka strefa 51 tajna.
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
