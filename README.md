@@ -154,6 +154,7 @@ Jak po winy nazywać się stany i kraj barana zmieniającego kolor włosów i fr
 Kiedyś nie trzeba było zgadywać myśli robota czy chłopa który ustala wykres a wpłacało się pieniądze na fundusz 1000 zł i procentowało lub co miesiąc po 1000 zł bez piramid i strat zysk był stały i niezależny od humoru aktora spekulanta. 
 Największe darmozjady dramatu mieszkają w NYC i Los Angeles. Przez was nie mogę zarabiać na procentach bo wszystko zabraliście dla siebie. Też bym chciał gadać bzdury w TV i leżeć u Nozardana jaki to ja jestem biedny bez kasy a na koncie mam tyle że mogę kupić Polskę. Mówią na mnie Buc z USA.
 Też bym chciał mieć 3 mieszkania na świecie dla siebie bez pożyczania. A nie mieszkać z rodzicami. Żyć bez kredytu. I omijać prawa religii mówiące o cierpieniu jak to uszlachetnia. Nie pracować w koloniach.
+Nikt darmo nie będzie robić za 4 zł h czy 20 funtów na h czy 5 dolarów na h. Aktorzy napychają sobie kiece kasą która należy się tym co pracują a nie arystokracji.
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
