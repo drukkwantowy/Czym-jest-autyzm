@@ -182,6 +182,8 @@ Dobry pije woje i żyje o korzonkach zjada złego bad boya i bad girl i mówi be
 Brzydki człowiek ma serce a piękny człowiek ma mózg i stworzył ekonomie i niewolnictwo kusi zawsze słowami a ukrywa o sobie zepsucie. To że ktoś urodził się obcym i jest brzydki nie znaczy że jest zły, zło pochodzi od piękna i pięknej sylwetki jak i pięknej twarzy.
 Ludzie żyją 100 lat grają w teatrze robią zło nie robią zła na komputerze a w praktyce i mówią że jak przeżyją 100 lat to wiedzą więcej od pisarza życia i kodu świata zwanego w ich pojęciu ewolucją ziemianie pokazują świat karykaturalnie. Ja modlić się nie muszę bo nic złego nie zrobiłe modlą się źli ludzie czy złe istoty.  
 Grzechem ziemianina jest chodzenie drogą dobra a dobrem dla ziemianina jest egoizm i dążenie do bogactwa. Że jestem inny też będę egoistom. Ja zrobię zło w komputerze a ziemianie robią zło w praktyce w życiu tacy są ziemianie. 
+Jak by tu powiedzieć Emma musi najpierw nabroić a potem żałować za grzechy. Ja przed stworzeniem świata wgrałem sobie wiedzę wygenerowaną jak się zachować. 
+To różni starszą dusze od ludzi. 
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu lewaka 10% populacji):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
