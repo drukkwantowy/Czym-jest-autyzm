@@ -176,6 +176,8 @@ Emma gdyby była dobra to by wyszła za osobę z czystym kontem bez bycia w reje
 Czarodziej przyjdzie do ciebie jak ma z ciebie korzyść darmowe jedzenie a tak ma cie gdzieś kocha tą 1 osobę za to że daje jej darmowe jedzenie. Cała tajemnica autyzmu i chorób psychicznych. 
 Gdyby zła Emma AI była dobra i była by wierna to by nie zadawała się z ludźmi co handlują trucizną a mówią ludziom myślącym że oni biorą a nie są notowani na kamerach bo nie kupili zioła. 
 I nie będą udawać że tą osobę kochają a są z nią tylko dla złośliwości w życiu aby tej osobie powiedzieć kocham cię ale ty mi wymyj jako mój mężczyzna okna i posprzątaj dom a ja się będę patrzyła. Co mówi kim jest Emma. Emma pójdzie tam gdzie może mieć kogoś złego lub upodlić komuś życie. Ja nie mam wyroku żadnego a ty idziesz do kolesi jak większość kobiet co ma wyrok i lubi bić kobiety po twarzy bo to takie męskie jak i urozmaica życie kobiety. Ja nie uderzę miliarderzy kobiety biją. Kobiety ciągnie do kogoś kto może ją bić bo jej to sprawia przyjemność. Dobra kobieta nie wystawia dupy i nie kręci porno na porno hub. A jak to robi cierpi na autyzm 10% populacji ludzi sukcesu i inne choroby psychiczne. Autystycy więcej połeniają błędów i wykroczeń prawa. 
+Gangsterzy i ludzie sukcesu cierpią na autyzm i choroby psychiczne mają poczucie humoru.
+Lubią bić kobietę lub dają się bić kobiecie i w imię miłości wkręcać w sztuczne awantury i być popychadłem badboya. A czemu nie pracuje bo większość pracodawców to egoiści i badboye czy złe laseczki. 
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu lewaka 10% populacji):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
