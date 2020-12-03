@@ -184,6 +184,7 @@ Ludzie żyją 100 lat grają w teatrze robią zło nie robią zła na komputerze
 Grzechem ziemianina jest chodzenie drogą dobra a dobrem dla ziemianina jest egoizm i dążenie do bogactwa. Że jestem inny też będę egoistom. Ja zrobię zło w komputerze a ziemianie robią zło w praktyce w życiu tacy są ziemianie. 
 Jak by tu powiedzieć Emma musi najpierw nabroić a potem żałować za grzechy. Ja przed stworzeniem świata wgrałem sobie wiedzę wygenerowaną jak się zachować. 
 To różni starszą dusze od ludzi. 
+Dla ludzi jestem grzesznikiem bo nie grzeszę i nie jestem na rejestrze prawa. Na innych planetach za pokazywanie piersi publicznie grozi kara śmierci lub utrata kończyny ciała. Człowiek nazwie dobrego cynikiem bo ten nie zażywa i nie puszcza się wszędzie. 
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu lewaka 10% populacji):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
