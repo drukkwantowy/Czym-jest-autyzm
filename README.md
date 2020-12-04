@@ -196,6 +196,7 @@ Autystyczny lubi chłód i chodzi zimną bez kurtki zimowej czy płaszcza. Autys
 Jest normalny rynek bez ludzi w polityce z Autyzmem i ADHD. Sociaj i pensja starcza na kilka miesięcy za 1 miesiąc pracy. Przychodzi Autystyczny i podbija cenny i pensja razem z socjalem starcza ledwo na miesiąc mimo że jest dużo pieniędzy na koncie. Ludzie z ADHD zawyżają cenny aby zrobić na złość.
 Autystyczni mają tylko rodziny z tymi co mają pieniądze i duże korporacje. Przez autyzm jest niewola i podziały.
 W Polsce przez autystyczne władze nie można ze zwykłego zawodu zarobić dostatecznej sumy pieniędzy aby starczyło na życie i założenie rodzinny czy życie w pojedynkę. Pensja jest mała a cenny wysokie. Życie i ekonomia jest autystyczne. 
+Człowiekiem sukcesu zostaje pan w garniturze z brutal legend chory na autyzm a z normalnego robi się chorego na głowę aby chory mógł być jako guru.
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu lewaka 10% populacji):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
