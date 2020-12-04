@@ -198,6 +198,7 @@ Autystyczni mają tylko rodziny z tymi co mają pieniądze i duże korporacje. P
 W Polsce przez autystyczne władze nie można ze zwykłego zawodu zarobić dostatecznej sumy pieniędzy aby starczyło na życie i założenie rodzinny czy życie w pojedynkę. Pensja jest mała a cenny wysokie. Życie i ekonomia jest autystyczne. 
 Człowiekiem sukcesu zostaje pan w garniturze z brutal legend chory na autyzm a z normalnego robi się chorego na głowę aby chory mógł być jako guru. Aby autystyczną osobę zmienić i aby miała życie w sobie trzeba dużo jej dać materii i miłości.
  Inaczej się nie zmieni jest zimna i specjalnej troski. Aby cenny były stałe nalerzy dawać zapomogii pracodawcą i pracownikom. Odsunąć od władzy autystycznych ludzi. Autyzm można wykryć specjalnym sprzętem komputerowym. 
+Na autyzm chorują obrońcy tezy że cierpienie wyzwala z grzechu czyli bycia dobrym. Gwałci się kobiety i dzieci które posiadają uczucia aby stały się autystyczne maszynami bez uczuć. Rogaty powie że autyzm i chory jest dobry a dobry powie że chory jest rogaty niebieski podający się za dobrego.  
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu lewaka 10% populacji):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
