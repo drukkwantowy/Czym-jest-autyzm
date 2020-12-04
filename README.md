@@ -191,7 +191,7 @@ Ekonomia jest przeciwko bogu. A żydzi powiesili Jezusa bo Jezus chciał obalić
 Ludzie zawsze niewolili innych ludzi. Cham wymyślił ekonomie. A kierowanie się sercem to tylko przepychanie krwi czyli bycie jak zegar nakręcany na klucz. Ludzie są zimni i chamsy nie ważne jakie mają cechy fizyczne czy psychiczne. 
 Gdyby Emma była normalna to by serce miała w głowie. Nie zmieniała partnerów, nie robiła skandalów, nie robiła porno, znalazła by 1 partnera i w ciąże by zaszła i nie szukała by nikogo innego. Ale ludzie są rozwięźli szukają miłości na kilka frontów. I od tego pochodzi człowiek z autyzmem i chorobą psychiczną. Zabawa ważniejsza od normalności. Aktorstwo, ekonomia, polityka, sztuka bez użyteczna to zabawa. 
 Autystyczni wymyśli cierpienie a ich myślenie jest zapisane w matematyce nie lubią seksu czy dotykania przez 2 osobę jak ta chce ich pokochać. Autystyczni wymyślili ekonomie i teatr cierpienia. Dla autystka rodzina i sex z żoną to depresja i picie procentów. '
-Autystyczni ludzie jak mają rodzinę to myślą w sposób taki: zamieszkasz u mnie pod warunkami że będziesz mi spełniać życzenia i sprzątać a jak nie to wygonie ciebie i twoje dzieci i znajdę sobie innego lub ulepie z kwantów. Tacy są ludzie. 
+Autystyczni ludzie jak mają rodzinę to myślą w sposób taki: zamieszkasz u mnie pod warunkami że będziesz mi spełniać życzenia i sprzątać a jak nie to wygonie ciebie i twoje dzieci i znajdę sobie innego lub ulepie z kwantów. Tacy są ludzie. Przez autystyków mam problemy z piciem. 
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu lewaka 10% populacji):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
