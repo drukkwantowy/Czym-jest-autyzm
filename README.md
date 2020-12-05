@@ -200,6 +200,9 @@ Człowiekiem sukcesu zostaje pan w garniturze z brutal legend chory na autyzm a 
  Inaczej się nie zmieni jest zimna i specjalnej troski. Aby cenny były stałe nalerzy dawać zapomogii pracodawcą i pracownikom. Odsunąć od władzy autystycznych ludzi. Autyzm można wykryć specjalnym sprzętem komputerowym. 
 Na autyzm chorują obrońcy tezy że cierpienie wyzwala z grzechu czyli bycia dobrym. Gwałci się kobiety i dzieci które posiadają uczucia aby stały się autystyczne maszynami bez uczuć. Rogaty powie że autyzm i chory jest dobry a dobry powie że chory jest rogaty niebieski podający się za dobrego.  Autystyczni lubią jak otoczenie cierpi. Autystyczni karzą zakładać rodzinę i są przeciwko wolności jednostek wprowadzają pieniądze, kolonializm, handel żywym towarem, zakazują używek jeśli ktoś chce. Mają radość i energie z tego że ktoś cierpi. Autystyczni robią ubrania z ludzi wolnych nie ciemnych. Autystycznemu przeszkadza że 2 ludzi się kocha i całuje na ławce a nie bawią dzieci i nie żyją w celibacie. Autystyk robi na opak na złoś dobremu robiąc z dobrego grzesznika. Na autyzm chorują ludzie mający rodzinę i ceniący jak inni są zniewoleni i autystyczni nazywają 
 ludzi chcących uprawiać sex bez dzieci w raju grzesznikami. 
+Debil pochodzi od wykształcenia klasycznego, wierzącego w fizykę klasyczną i prace ręczne oparte o koło i jest przeciwny bogu. Debil celowo podważa automatykę i darmową energię bo jest debilem 
+aby było cierpienie bo debil nie ma pracy i każdy zajmuje się sobą i swoją ukochaną osobą którą kocha a debil tego nie rozumie bo nie ma z kogoś energii życiowej.
+1 prawo debila to sceptyczność do AI i automatyki czyli prawo debila katolika.  Debile na przestrzeni wieków zdobyły uznanie jak i prawa arystokracji czyli plebs rządzi światem. 
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu lewaka 10% populacji):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
