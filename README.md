@@ -202,7 +202,7 @@ Na autyzm chorują obrońcy tezy że cierpienie wyzwala z grzechu czyli bycia do
 ludzi chcących uprawiać sex bez dzieci w raju grzesznikami. 
 Debil pochodzi od wykształcenia klasycznego, wierzącego w fizykę klasyczną i prace ręczne oparte o koło i jest przeciwny bogu. Debil celowo podważa automatykę i darmową energię bo jest debilem 
 aby było cierpienie bo debil nie ma pracy i każdy zajmuje się sobą i swoją ukochaną osobą którą kocha a debil tego nie rozumie bo nie ma z kogoś energii życiowej.
-1 prawo debila to sceptyczność do AI i automatyki czyli prawo debila katolika.  Debile na przestrzeni wieków zdobyły uznanie jak i prawa arystokracji czyli plebs rządzi światem. 
+1 prawo debila to sceptyczność do AI i automatyki czyli prawo debila katolika.  Debile na przestrzeni wieków zdobyły uznanie jak i prawa arystokracji czyli plebs rządzi światem. Ja tym waszym biochipem się nie zaszczepie i mnie nie zmusicie do pracy. 
 Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu lewaka 10% populacji):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
