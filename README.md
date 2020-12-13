@@ -1,4 +1,4 @@
-# Czym-jest-autyzm choroba pracodawców zaganiaczy bydła syndrom surowego człowieka. Brak empati dla lenistwa. Choroba Lewaków. Schiza 10% ludzi na świecie.
+# Czym-jest-autyzm choroba pracodawców zaganiaczy bydła syndrom surowego człowieka. Brak empati dla lenistwa. Choroba Lewaków. Schiza 10% ludzi na świecie kobiecy punkt widzenia władza poprzez teatr i manualaność.
 Przykładem kobiety z literatury fantastycznej z spektrum autyzmu była Moli z Neuromancera ciężko pracowała na swoje ulepszenia.
 Osoby z autyzmem są genialnymi matematykami i są jak wyrocznie nigdy się nie mylą żadko to swego rodzaju sieć neuronowa co
 potrafi opracować takie wizje że normalny człowiek tego nie potrafi. Normalnemu człowiekowi zajmie to lata zaś
