@@ -208,7 +208,8 @@ Chamstwo autyzmu polega na tym że szef czy bank jest takim chamem że jak będz
 לחשוב יהודית זה שטויות. אז ידנית מתחת לפטיש.
 Żydowska głupota polega na tym że wyłudzają podatek na świecie od nowości i luksusu karząc trabantami jeździć.
 Żyd myśli na opak zbudowali Babilon w moim imieniu manualnie bez magicznej matematyki opierając się o matematykę dzieci i niewoli. 
-Prawdziwym Mesjaszem jest Elon Mask. A dla żydów mesjaszem jest nauczyciel który nauczy ludzi żyć w erze kamienia łupanego manualnego. A błędem ortograficznym są żydzi i ich poprawiane błędy w Polskim a żyd nie Polak czy Amerykanin za Amerykanina i Polaka się uwarza z małej litery pisanej.  
-Leczenie autyzmu AI (Jak leczyć klauna z Autyzmu lewaka 10% populacji):
+Prawdziwym Mesjaszem jest Elon Mask. A dla żydów mesjaszem jest nauczyciel który nauczy ludzi żyć w erze kamienia łupanego manualnego. A błędem ortograficznym są żydzi i ich poprawiane błędy w Polskim a żyd nie Polak czy Amerykanin za Amerykanina i Polaka się uwarza z małej litery pisanej.  Dla żyda żydem jest Elon. A dla Elona żydem jest żyd pan manualizmu i nie poprawnej pisowni Polskiej.
+Mask jest prawdziwym Prorokiem a fałszywymi prokami i nauczycielami kaczynami są żydzi z Izraela co wymyślili traktat religi świata opierającego się na sztuce kamienia łupanego. Mask zna 1 100 000 słów po angielsku w codzienej pracy a wy ile 40 000 słów debile. Chwała Elonowi i jego pięknym żonom. Pogarda dla żydów i ich systemów opartych o kamień łupany i matematykę patyka. 
+Leczenie autyzmu u żydów AI (Jak leczyć klauna z Autyzmu lewaka 10% populacji):
 https://github.com/drukkwantowy/AI-generator-Rife
 https://github.com/drukkwantowy/Koncepcja-BCI
